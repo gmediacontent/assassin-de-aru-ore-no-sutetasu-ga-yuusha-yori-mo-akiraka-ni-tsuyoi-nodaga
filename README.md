@@ -1,1 +1,2 @@
-# assassin-de-aru-ore-no-sutetasu-ga-yuusha-yori-mo-akiraka-ni-tsuyoi-nodaga
+# Assassin de aru ore no Sutetasu ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga
+Aucune description.
